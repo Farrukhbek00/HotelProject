@@ -1,0 +1,6 @@
+- Islomkhuja Akhrorov 
+- Farruhkbek Zokirov
+- Abduvohid Isroilov
+- Masrurbek Bekmirzayev
+- Akbarjon Olimov
+- Mirsolikh Abrolov 
